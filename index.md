@@ -1,4 +1,4 @@
-Here you can say lots of fun things about your site.
+I will write here my journey abd my thoughts
 
 Maybe say a some things about yourself.
 
